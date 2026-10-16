@@ -1,6 +1,4 @@
-- 👋 Hi, I’m @FIRECRAFT2534
-- 👀 I’m interested in Gaming
-- My discord Firecraft#1212
+- 
 - 
 - 
 <!---
